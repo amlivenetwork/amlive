@@ -20,3 +20,5 @@ Anyone may suggest feature to this new social network and if agreed by many it w
 We need to make almost all services available for free!.
 
 for any suggestion you may reach me directly at johnprogrammertz@gmail.com
+Your 1 hour dedication to amlive may be the best contribution to free social network..
+LETS MAKE A BIG CHANGE!.
