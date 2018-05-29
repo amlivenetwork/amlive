@@ -18,3 +18,5 @@ We need React-Native geeks, Electronjs geeks and Reactjs geeks to join this team
 
 Anyone may suggest feature to this new social network and if agreed by many it will be implemented!.
 We need to make almost all services available for free!.
+
+for any suggestion you may reach me directly at johnprogrammertz@gmail.com
